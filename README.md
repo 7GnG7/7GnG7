@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gngonen@gmail.com**
 
-- ⚡ Fun fact **Star Wars Geek!**
+- ⚡ **Digital Nomad.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
